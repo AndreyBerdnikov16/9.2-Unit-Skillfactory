@@ -1,4 +1,4 @@
-Skilffactory student INTQAP-1037
+Skillfactory student INTQAP-1037
 Berdnikov Andrey
 
 Hello my friends)
